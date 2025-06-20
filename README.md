@@ -1,1 +1,0 @@
-# LikeLion-13th-AI-Assignment06
